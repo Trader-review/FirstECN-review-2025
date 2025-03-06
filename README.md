@@ -8,7 +8,7 @@ As the forex trading landscape continues to evolve, brokers must adapt to new ma
 
 
 
-![image]()
+![image](https://github.com/Trader-review/FirstECN-review-2025/blob/30a5a964e1b0f91725112f1793abb82cae330cfb/firstecn%20trader%20review.jpg)
 
 Key Updates and Changes in 2025
 --------------------
